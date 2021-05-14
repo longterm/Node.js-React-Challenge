@@ -1,5 +1,6 @@
 ## Attention
 Please check via email or skype to see if this is valid before performing the challenge.
+Don't do this if there is no response.
 If you don't have time to do this challenge, please contact us via email and skype.
 
 - skype: live:.cid.2bfde47f0df08310
